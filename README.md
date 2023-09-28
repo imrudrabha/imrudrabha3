@@ -1,1 +1,1 @@
-# [imrudrabha.github.io](https://rudrabha.com/)
+# [imrudrabha.github.io]
